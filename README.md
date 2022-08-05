@@ -1,1 +1,2 @@
 # wallpaper
+All right reserved. 
